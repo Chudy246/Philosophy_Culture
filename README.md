@@ -1,2 +1,2 @@
 # Philosophy_Articles
-Place for all read philosophy articles and read books
+Place for all read philosophy articles and books
